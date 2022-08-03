@@ -1,2 +1,5 @@
-# refantasia-charm-and-conquer-cheats-codes-crystals-hacks
-Refantasia Charm and Conquer cheats and codes for unlimited crystals hacks guide
+# Refantasia Charm and Conquer cheats and codes for unlimited crystals hacks guide
+
+Refantasia Charm and Conquer cheats and codes for unlimited crystals hacks guide - Understandably, at the end of the tutorial, especially after getting more cards from the initial check draw, you will be eager to participate in more card battles. Although you may have a good enough understanding of the basic rules and mechanisms of vanguard zero, and because automatic combat can help you overcome the initial challenge, it is best to accept the training combat challenge to learn or review the rules of the game. In addition, each quick training can win you 20 gems. Gems are a kind of currency that you can use to buy more cards. Therefore, owning more gems in the early stage should further enhance the strength of your starting deck and help you better cope with the next challenge. You can view the training competition through the menu icon on the right side of the screen.
+
+[click now](https://windmod.icu/refantasia-charm-and-conquer/)
